@@ -1,6 +1,6 @@
 # Randall_Bond
 My Personal Repository
-:smiling_face_with_open_hands: Little bit about me, I'm 28 years old I have a fiance of 14 years. 
+🤗 Little bit about me, I'm 28 years old I have a fiance of 14 years. 
 We have been through everything together, we have two kiddos one 
 boy who is 9, and a girl who is 7. And one of those people who 
 didn't decide to get their stuff together later in life. But 
@@ -37,4 +37,4 @@ and a little bit of Dragon Ball and sparking zero here lately) And I'm a huge fa
 my favorite artists are in the Strange Music label Ran by rap artist Tech N9ne Otherwise known as Aaron Yates. 
 Some of my other favorite artists inside the label are King ISO, X-Raided, Joey cool, outside of their label I 
 like Chris Webby and Ekoh. I hope I didn't overbear anyone with that information but that's as much as I can really 
-give you about me, everyone thrive and stay blessed, peace. :saluting_face:
+give you about me, everyone thrive and stay blessed, peace. 🫡
